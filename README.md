@@ -1,5 +1,9 @@
 # 💫 About Me:
-Computer Engineering student, currently developing the final project of the bilingual modality at the<br><br>Autonomous University of Madrid. I am currently working at a Leading Information<br><br>Technology Company called Accenture, located in Madrid, Spain.<br><br>During the years of studies, I have had to carry out teamwork in which I have been able to<br><br>learn how to work between people of different cultures, manage the differences between<br><br>colleagues and be able to reach the objectives in the time and quality required, developing<br><br>communication skills, teamwork integration and collaboration.<br><br>I consider myself a proactive, positive person, always willing to give my best before the<br><br>challenges that I have to face.
+Attended the Universidad Autonoma de Madrid and graduated as an informatic engineer. I am interested in working for a Leading Information Technology Company that will allow me to engage in initiatives that will help me improve the abilities I learned throughout my studies and may provide me with opportunities for long-term growth.
+
+Previously, I had to perform teamwork, and I was able to learn how to work with people from different cultures, manage differences among colleagues, and achieve the objectives in the time and quality required, while also developing communication skills, teamwork integration, and collaboration.
+
+I consider myself a proactive, positive person who is always eager to put in my best effort in the face of obstacles.
 
 
 ## 🌐 Socials:
